@@ -1,6 +1,6 @@
 ## Hi, I'm Anushka 👋
 
-🎓 I'm a **2nd year Computer Science student** passionate about technology, creativity, and research.
+🎓 I'm a **3rd year Computer Science student** passionate about technology, creativity, and research.
 
 ## 👩‍💻 About Me
 
